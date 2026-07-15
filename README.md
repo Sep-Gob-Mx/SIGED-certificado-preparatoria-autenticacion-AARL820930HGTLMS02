@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AARL820930HGTLMS02
+AARL820930HGTLMS02
